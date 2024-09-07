@@ -30,6 +30,7 @@ We're always excited to collaborate on new projects. Feel free to reach out!
 
 **Email:** [info@mobinait.net](mailto:info@mobinait.net)  
 **Website:** [MobinaIT.Net](https://MobinaIT.Net)
+**Linkedin:** [https://www.linkedin.com/company/madcobiz](https://www.linkedin.com/company/madcobiz)
 
 ---
 
