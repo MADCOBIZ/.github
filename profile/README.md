@@ -34,4 +34,7 @@ We're always excited to collaborate on new projects. Feel free to reach out!
 
 ---
 
+### Donate us:
+<a href="https://daramet.com/wersy"><img src="https://panel.daramet.com/static/media/daramet-coffee-donate.91915073278a21c30769.png" width="400"></a>  
+
 © Mobina Age Of Design (MADCO), All Rights Reserved.
